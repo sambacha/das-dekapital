@@ -21,3 +21,8 @@ falls upward from concept into the daily experience of the distractions of speed
 streamed emptiness of the new bourgeois ego. Marx wrote out a prolegomena to the age of the
 circulating commodity, but it is our peculiar technological destiny to experience the speed of
 circulation as the image matrix within the ecstatic signs of which we are only humiliated flesh. 
+
+
+### Sources
+University of Toronto 
+Delft University
